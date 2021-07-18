@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @psh0x00
+- 👀 I’m interested in learning a bunch of different stuff
+- 🌱 I’m currently a student of computer science
